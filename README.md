@@ -12,7 +12,7 @@ Especially now I'm using R on multiple machines.
 
 You get the idea...
 
-You're more that welcome to take a copy if you want, but like I said, it's a
+You're more than welcome to take a copy if you want, but like I said, it's a
 personal collection!
 
 Jer
